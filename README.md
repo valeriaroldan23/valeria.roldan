@@ -1,2 +1,2 @@
 # valeria.roldan
-Med student, wannabe coder, neurology geek
+Med student from Lima, Peru. Future neurologist. Runner 
